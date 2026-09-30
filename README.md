@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CECJ830906HTCFRN01
+CECJ830906HTCFRN01
